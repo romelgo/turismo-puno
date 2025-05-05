@@ -1,1 +1,1 @@
-# turismo-puno
+# Turismo-Capachica
